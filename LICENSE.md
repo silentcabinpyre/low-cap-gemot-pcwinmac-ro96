@@ -1,4 +1,4 @@
-# 
+# Leve low cap gem sniper bot complementos para Mac OS | Instantâneo low cap gem sniper bot complementos para PC Windows. Com otimização de preço de gás e limitação de taxa — otimizado para máximo desempeño en cada plataforma.
 
 
 
